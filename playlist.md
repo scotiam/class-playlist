@@ -13,7 +13,6 @@
 
 ## Energetic
 
-
 ## Fear
 
 ## Not Categorized
